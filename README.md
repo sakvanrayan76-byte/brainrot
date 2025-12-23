@@ -1,0 +1,2 @@
+# brainrot
+sell/buy brainrots
